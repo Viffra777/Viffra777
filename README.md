@@ -5,7 +5,7 @@
 - 📫 How to reach me +48 452 573 277 , meet with me in Wysokie Mazowieckie, 18200 , Armii Krajowej 1/8 and more spaces in this town . other way is e-mail - hubertkarlowicz7@gmail.com  
 - 😄 Pronouns: &,@,-,+,/,*,',!,!,?,.,',
 - ⚡ Fun fact: FUCK YOU TOO MUCH, 🫥😶‍🌫️ H.K
-  I'm preferred polish and English language it's my favourite language to write and talk. all for me  🖤🔥🕳️
+  I'm preferred polish and English ***language it's my favourite language to write and talk. all for me  🖤🔥🕳️
 Viffra777/Viffra777 is a not ✨ special ✨ repository because its `README.md` (this file) appears on your GitHub profile.
 You can click the Preview link to take a look at your changes .
 i like this change, 😀🙂 

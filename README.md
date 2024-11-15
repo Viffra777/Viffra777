@@ -1,4 +1,4 @@
-- 👋 Hi, I’m @Viffra777/ Hubet Karlowicz/ copyright by Hubert Karłowicz - Bright&Dark company Armii Krajowej 1/8 Wysokie Mazowieckie 18-200 🤤
+- 👋 Hi, I’m @Viffra777/ Hubret Karlowicz/ copyright by Hubert Karłowicz - Bright&Dark company Armii Krajowej 1/8 Wysokie Mazowieckie 18-200 🤤
 - 👀 I’m interested in money, recommendations, help, subcontracting, career, assistance, protection, yourself, siblings, family. 🤑😶‍🌫️😂
 - 🌱 I’m currently learning to program, to educate oneself, to make furniture, to educate, to invest, to help, to assist, to support, to build, to research, to coordinate, to deliver, to sell, to create, to perform, to work, to sum up, to be a universal person 😺
 - 💞️ I’m looking to collaborate on me , her , him , & other persons 
